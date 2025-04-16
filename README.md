@@ -1,5 +1,4 @@
-
-saya ialah hensem btw saya single
+saya hensem btw saya single
 sape nk try 
 ig : afifros_
 
